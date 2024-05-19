@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **karanbalajirs@gmail.com**
 
-- ⚡ Fun fact **I don't know how to use GitHub 😅**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
